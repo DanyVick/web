@@ -2,7 +2,7 @@
 
 Downloading for free ebooks study guide material, <a href="https://www.fdaytalk.com/gk-pdf-download/" target="_blank" rel="noopener">General knowledge GK ebook</a>, Indian Polity and many ebooks for complete download
 
-eBooks from Google Play and Free Kindle
+eBooks from Google Play and Free Kindle Books
 
 <strong>Google Books:</strong> <a href="https://play.google.com/store/books/details?id=DYPQDwAAQBAJ">GK 2020</a>
 
